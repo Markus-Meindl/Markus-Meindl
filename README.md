@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Markus-Meindl
 - 👀 I’m interested in my workspace. 
-- 🌱 I’m currently learning that my workspace won't open. 
+- 🌱 I’m currently getting to know my workspace. 
 - 💞️ I’m looking to collaborate on my workspace. 
 - 📫 How to reach me - definitely not on my workspace. 
 - 😄 Pronouns: work/space
